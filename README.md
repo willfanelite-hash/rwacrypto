@@ -1,5 +1,5 @@
-I first discovered Bitcoin back in 2016 at a restaurant with a friend to find a new industry, deal flow project that is upcoming which was cryptocurrency.
-In 2017 I ventured first into building one of the very first ethereum mining rig farms and became a bitcoin mining company in 2018.
-Up till 2021 I became a known GPU and ASIC reseller and supplier in North America.
-I remembered the original Satoshi white paper of Bitcoin and decided to follow on the rule of commerce, a peer to peer transaction - protecting sellers and buyers, by developing a decentralize platform with manufacturers.
-Why crypto failed on that? A simple transaction action so basic that the majority of the people cant or dont know how to use bitcoin. Manufacturers dont understand it, and then the finance bros came in and took the market and confused the 99% of the population by misusing it. I am now about to change that as a lead manufacturer myself who was trained in five automotive factories most notibly Kia and Hyundai. I travelled for over a decade continuously searching and touring factories and suppliers around the world in 3 continents, while securing global fortune 1000 companies as my partners. 
+Hello everyone, my name is Will Fan and I suffer from the following mental health issues:
+
+Delusional Disorder (Grandiose Type)
+Histrionic Personality Disorder
+Neurodevelopmental or Cognitive Issues
